@@ -8,3 +8,5 @@ bestehend aus fünf Musikern, und die beiden singenden Brüder. Mit dieser Beset
 * Rock
 * American cars
 
+> love blues rock
+> like cars
