@@ -12,4 +12,3 @@ bestehend aus fünf Musikern, und die beiden singenden Brüder. Mit dieser Beset
 > like cars
 
 <img src="https://fotos.piqs.de/1/b/5/0/f/028b0f43b82b50d9611e4d5d5069e9d2.jpg"/>
-
